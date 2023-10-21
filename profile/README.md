@@ -1,5 +1,3 @@
-## Hi there 👋
-
 Minecraft Minigames Netzwerk
 Unsere Kreativität, dein Spiel spaß.
 
